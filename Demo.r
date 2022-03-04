@@ -3,4 +3,4 @@
 
 
 
-Rangamati Science and Technology Univerity 
+Rangamati Science and Technology Univerity,Rangamati
